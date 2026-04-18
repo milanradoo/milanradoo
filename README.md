@@ -1,4 +1,4 @@
-# 💫 Hi, I'm Milan
+# 🚀 Hi, I'm Milan
  
 Building. Learning. Improving.
 
